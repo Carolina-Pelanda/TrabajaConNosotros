@@ -26,7 +26,7 @@ Bienvenidos! Somos la empresa de telecomunicaciones lideres en nuestra zona. Te 
 
 - **Programador Backend .NET**
   - Ubicación: Remoto, Argentina.
-  - [Aplica aqui](https://forms.office.com/r/qAwvUKe3F7)
+  - [Aplica aquí](https://forms.office.com/r/qAwvUKe3F7)
 
 - **Técnico en Redes Informáticas**
   - Ubicación: Tres Arroyos, Argentina.
