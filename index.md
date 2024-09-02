@@ -9,7 +9,7 @@ Bienvenidos! Somos la empresa de telecomunicaciones lideres en nuestra zona. Te 
   - [Aplica aquí](https://forms.office.com/r/Y1GLShFGjW)
 
 - **Ejecutivo de Atención Comercial**
-  - Ubicación: Adolfo Gonzales Chaves / Benito Juarez; Buenos Aires.
+  - Ubicación: Adolfo Gonzales Chaves / Benito Juarez, Buenos Aires.
   - [Aplica aquí](https://forms.office.com/r/Q4RxL09szP)
 
 - **Técnico e Instalador de Internet**
@@ -26,7 +26,7 @@ Bienvenidos! Somos la empresa de telecomunicaciones lideres en nuestra zona. Te 
 
 - **Programador Backend .NET**
   - Ubicación: Remoto, Argentina.
-  - [Aplica aqui](mailto:carolina.pelanda@eternet.cc)
+  - [Aplica aqui](https://forms.office.com/r/qAwvUKe3F7)
 
 - **Técnico en Redes Informáticas**
   - Ubicación: Tres Arroyos, Argentina.
