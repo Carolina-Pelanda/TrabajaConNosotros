@@ -13,8 +13,8 @@ Bienvenidos! Somos la empresa de telecomunicaciones lideres en nuestra zona. Te 
   - [Aplica aquí](https://forms.office.com/r/Q4RxL09szP)
 
 - **Técnico e Instalador de Internet**
-  - Ubicación: Claromeco, Buenos Aires.
-  - [Aplica aquí](mailto:carolina.pelanda@eternet.cc)
+  - Ubicación: Bahía Blanca, Buenos Aires.
+  - [Aplica aquí](https://forms.office.com/r/NrHqWuqF8C)
 
 - **Técnico de Obras**
   - Ubicación: Tres Arroyos, Buenos Aires.
