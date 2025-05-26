@@ -32,7 +32,7 @@ Bienvenidos! Somos la empresa de telecomunicaciones lideres en nuestra zona. Te 
   - Ubicación: Tres Arroyos, Argentina.
   - [Aplica aquí](https://forms.office.com/r/TFdq8JkPL2)
 
-- - **Retirador de Equipos/Asistente de Logística**
+- **Retirador de Equipos/Asistente de Logística**
   - Ubicación: Tres Arroyos, Argentina.
   - [Aplica aquí](https://forms.office.com/r/JihV1tLeBP) 
 
